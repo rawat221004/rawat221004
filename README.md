@@ -18,7 +18,7 @@
 
 - Since you’ve stumbled upon my profile, I’m guessing you’re curious about what I do – and I hope what you find here sparks some interest! ♡
 
-Whether you’re a fellow cyber enthusiast, a collaborator, or just exploring, I’m stoked you’re here. Take your time, dive deep, and feel free to reach out if you’re vibing with anything.
+- Whether you’re a fellow cyber enthusiast, a collaborator, or just exploring, I’m stoked you’re here. Take your time, dive deep, and feel free to reach out if you’re vibing with anything.
 
   
 
